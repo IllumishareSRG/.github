@@ -53,6 +53,6 @@ Powerful and Fully doxxed Team
 
 
 
+![image](https://user-images.githubusercontent.com/98988595/190667014-f2d9aad7-1889-40f5-8e90-c3e1dd1dee2c.png)
 
-https://illumisrg.io/wp-content/uploads/2022/07/Big-logo@2x.d110a0.webp
 
