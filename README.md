@@ -50,3 +50,9 @@ Empowering the community.
 Fast transactions & low gas fees
 Powerful and Fully doxxed Team
 
+
+
+
+
+https://illumisrg.io/wp-content/uploads/2022/07/Big-logo@2x.d110a0.webp
+
