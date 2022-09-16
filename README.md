@@ -36,3 +36,17 @@ Technology
 a. Auto burn mechanism
 b. Locking 90% of founders & team & advisory board tokens for the first 2 years.
 c. Staking mechanism
+
+
+
+Why IllumiShare SRG?
+100% transparency.
+Stability with 3 uncorrelated back up assets.
+Because you will be able to use SRG tokens everywhere.
+Because of the top tier team.
+Because of the vision.
+90% of the owners tokens are locked for the first two years.
+Empowering the community.
+Fast transactions & low gas fees
+Powerful and Fully doxxed Team
+
