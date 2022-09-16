@@ -1,4 +1,14 @@
+![image](https://user-images.githubusercontent.com/98988595/190666118-6fb5c08a-bdc4-4326-9a27-6b9e31ddbda8.png)
+
+
+
+
+
+
 Illumishare
+
+
+
 
 Through a combination of human capital, technology, cash and gold, we have created a new economic method, driven by innovation and relying on tradition at the same time. Illumishare SRG is a token without limits of growth &amp; opportunities, backed up by 3 uncorrelated assets. They will be in use and secure us in case of crisis.  
 
