@@ -25,13 +25,13 @@ Cyber Scope
 
 
 
-Physical Gold icon
+
 Physical Gold
 We will keep a physical gold reserve equivalent to a percentage of the all time high Market Cap, the Gold will be stored in a safe room at a central bank in Abu-Dhabi in a transparent manner and will be broadcasted live 24/7.
-Recovery Fund icon
+
 Recovery Fund
 “The backup of the backup”. Our Cash reserve built from the margins between the gold market price and our gold price. We will use this budget automatically for aggressive marketing.
-Technology icon
+
 Technology
 a. Auto burn mechanism
 b. Locking 90% of founders & team & advisory board tokens for the first 2 years.
